@@ -1,1 +1,1 @@
-# hey I am shafic!I am a junior frontend developer
+# hey I am shafic!I am a junior developer
